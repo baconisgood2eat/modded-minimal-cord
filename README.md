@@ -1,2 +1,2 @@
 # modded-minimal-cord
-ye
+put his in better discord themes
